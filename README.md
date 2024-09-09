@@ -1,4 +1,4 @@
 oiii galeuriss
 thudu bomm ???
 
-![](![image](https://github.com/user-attachments/assets/f33418ed-7f63-4913-8412-e8b6ec92629c)
+![](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExYzBvYjBrb2hqNzkweW82b2ZrajZsdmNnNnRsNnZkM2FhbHJweXdpOSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/5ZZSYqvcH6QppFQGI5/giphy.webp)
