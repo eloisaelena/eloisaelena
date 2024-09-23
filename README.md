@@ -3,7 +3,7 @@
 
 
 
-oiii galeuriss
+oiii galeuriss 💋
 thudu bomm ???
 
 vocẽs não precisam saber nada sobre mim, obrigada pela sua atenção!!🙊
