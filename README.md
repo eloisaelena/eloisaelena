@@ -9,6 +9,6 @@ thudu bomm ???
 
 vocẽs não precisam saber nada sobre mim, obrigada pela sua atenção!!🙊
 
-# eu sou MUITOOOOOOOOOOOOOOOOOOO lindaa
+# eu sou MUITOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO lindaa
 
-# SIGAM A FER NO INSTA, ESTOU MANDANDO @MARIA_FERBT
+ SIGAM A FER NO INSTA, ESTOU MANDANDO @MARIA_FERBT
